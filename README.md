@@ -1,0 +1,2 @@
+# premium-morocco-001-morocco-goatskin-grain-pattern
+Struggling to identify authentic goatskin grain patterns or document your Morocco leather sourcing? This Notion template eliminates guesswork by organizing every grain characteristic, tannery detail, and visual reference you need in one searchable system.  The Morocco Goatskin Grain Pattern Guide transforms scattered leather knowledge into a profes
